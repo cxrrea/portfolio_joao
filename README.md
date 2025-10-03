@@ -17,6 +17,6 @@ https://portfolio-joao-rho.vercel.app/
 
 ### Contatos:
 
-#### Tel: (19) 99842-9135 📞
+#### Tel: (19) 990064071 📞
 #### E-mail: joaovitorcorre4@gmail.com 📧
 
